@@ -1,0 +1,8 @@
+JSW <a href="http://www.orinjet.com/products/"/>uv flatbed printer manufacturers</a> is dedicated to practicing the technology of digital printing on metal sheet for a long time, especially the  uv printing on stainless steel and uv printing on aluminum. Our hot-sale F2513G/F3020G JSW Industrial Level UV Flatbed Printer,  F2513G-Pro JSW Industrial UV Flatbed Printer and  F3220G JSW Industrial Large Format Flatbed UV Printer, can be used as the metal sheet printing machine.
+Application Solutions of UV Inkjet Printing on Aluminum Sheet & Stainless Steel
+The <a href="http://www.orinjet.com/digital-uv-metal-sheet-printing-machine.html"/>digital printing on metal sheet</a> machine is a new kind of equipment specialized in printing the trademark on the metal material, which included iron, aluminum, copper, lead, tin, steel and so on. Any picture that is made of simple colors, full colors, or even has transition colors, can be print out for one time, no plate, no burning, and no repeated topping. What's more, the picture is printed in bright color with vivid effect, and it is protected from water, UV, wear and fading. The operation is easy and the performance is stable. 
+ 
+Targeted Application Field of Metal UV Printer
+It is more and more popular to print the metal material by <a href="http://www.orinjet.com/digital-uv-metal-sheet-printing-machine.html"/>uv printing on stainless steel</a> , for its advantage of individualization, rich color, strong artist, can be used in the billboard, signpost, badge, and so on. 
+
+<img src="http://www.orinjet.com/uploads/image/20181108/11/metal-printer-1.jpg"/>
